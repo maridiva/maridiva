@@ -11,7 +11,7 @@
 
 ### ENTRE EM CONTATO COMIGO
 
-maria.souza.lima03@escola.pr.gov.br
+
 @mariaaslx
 
 ![](https://media1.tenor.com/m/yYwrNzvPaQgAAAAd/ed-edd-n-eddy-walking-rom.gif)
